@@ -1,1 +1,21 @@
-# GoJek-Clone
+OmniJek - GoJek Clone Omni
+GoJek Clone OmniJek Script & Apps solution is designed, crafted, and compiled to work the same as GoJek with beyond extra features that presently not provide in an original by far the most comprehensive admin panels to manage all the segments separately with unified control and team management.
+
+In the GoJek Clone – OmniJek app customers can request a taxi, courier, handymen, laundry, food, grocery, etc., and any nearby service provider received a notification for this service with a count-down. This includes everything be it for the doctor, carpenter, repairs, maids, cleaners, tutors, lawyers, plumbers, technicians, tow services and a lot more, to be honest, it can go above 100+ services and still no restrictions.
+GoJek Clone Ranked No.1
+GoJek Clone OmniJek has all the on-demand services you can possibly think of! This is your chance to secure your own place in the industry with all aspects covered on-demand service based app that will enable your customers to access an array of different kinds of services, just within the scope of a single app! Gojek Solution not only is the most competitive solution for customers to get an easy way to get services delivered at home but also serves as a dependable growth opportunity for service providers to earn independently.
+
+Whether it is booking a cab(taxi booking), parcel delivery, satisfying your hunger or groceries online or hiring a handyman(service on demand), this app is the most dependable, most precise solution in the market with live tracking along with android and iOS mobile application. To get more insight regarding the solution and its workflow, just take the live demo! It won’t cost you anything! We will do the white labeling for this super app alike go jek clone.
+
+In this on-demand Multi services App Like Gojek, you can add unlimited services beginning from Taxi on Demand to AC Repair services, Car Wash Services etc., to this and make a decent income through each trip/delivery or other services that are being done from the Gojek Clone App. Not just that, you also get options like Food Delivery, Grocery Delivery etc on any other Merchant Delivery app along with the liberty to manage and control the main categories as well as subcategories as per your convenience from the admin panel.
+
+Most of the development companies and their developed products claim a lot of things but when it comes to demo and delivery they become too strict and need all your details, not with us, we are sure of our solution that’s why we offer an open demo. Gojek Clone app is a powerhouse with a lot in its core, it sounds very complex, but we worked very hard to make it simple to use and generate service options and revenue without a sweat.
+
+Covid19 has been harsh on all and has made us all understand that one service solution won’t help to keep up with the stream and aspirations of people, with gojek clone solution this won’t affect adversely and will keep you robust. The opportunity that it offers enables people to increase the scope of service which in turn will expand the income opportunities and offering customers to get all services under one roof and get them faster and more efficiently. Its like a boon to the App Solutions Terminology itself.
+
+GoJek Script comes with mobile apps which also have multiple languages just like the web and admin panels which will help you get started with business like gojek in any region across the globe. Accept Reject for Providers and Stores is the key to not to force them and make them indulge in your business with liberty, very simple but powerful.
+
+We know we have repeated the terms of multi-service and unlimited services and convenience multiple times, but believe us it’s more than you actually need and we put it all in the right order and place to ensure that you don’t have to worry ever.
+
+Google Maps Burning Holes in your Pocket, as they cost a lot.
+We have worked hard and delicately to ensure that the hole which is increasing due to the ever-increasing prices of google maps API is shunned. We have put up more than 6 maps API in the solution to ensure that your map billing cost which happens to be the heart of any on-demand solution, doesn’t worry you anymore and the heart keeps beating without any expensive pace makers.
